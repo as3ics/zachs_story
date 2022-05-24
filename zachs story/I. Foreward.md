@@ -4,20 +4,24 @@
 
 ### Started: May 23, 2022 | 05-23-2022
 
-### Last Editied: May 23, 2022 | 05-23-2022
+### Last Editied: May 24, 2022 | 05-24-2022
 
-Everything written in this collection is the objective truth as I interpreted it at that time. Interpretations of what have happened have changed over time, and they will be reflected in the entries. This is true particularly for the prelude, where events that felt like obvious "signs" at the time I later realized were common human reactions to uncommon situations, and this has come the knowledge gained on the journey of life.
+Everything written in this memoir is based on the objective truth as I perceived it at that time it happened. Interpretations of what I have perceived have changed over time, and this will be reflected by the dates of each entry. This is particularly true for the prelude, where events that felt like obvious "signs" at the time were later realized to be common human reactions to uncommon situations.
 
 Some names have been changed; some have not.
 
 All statements are facts; but some may be ommited.
 
-Many entries may be shocking or upsetting, others will hopefully be revelations.
+Many entries may be shocking or upsetting, others may be revelations.
 
-What I objectively trying to get you to do throughout this memoir is ask yourself:
+All I am trying to do in this memoir is get you to ask yourself:
 
-Is it chance?
+    Is it chance?
 
 - Zachary Michael DeGeorge
+- Born 09-16-1988
+- In Pittsburgh, PA, USA
+- SSN: 382-XX-XXXX
+- To Christina Ann DeGeorge (23, Unmarried)
 
-Born: Sept 16, 1988 | 09-16-1988 Location: Pittsburgh, PA, USA
+[Zach's Birth Certificut]()
